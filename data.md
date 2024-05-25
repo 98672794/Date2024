@@ -1,1 +1,1 @@
-https://7c1d-34-80-122-2.ngrok-free.app
+https://74e2-34-82-69-222.ngrok-free.app
